@@ -1,2 +1,0 @@
-# Tes-gitnya
-belajar woii
